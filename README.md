@@ -1,0 +1,2 @@
+# SnooCockBot-lemmy
+Cock 
